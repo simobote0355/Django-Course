@@ -1,0 +1,1 @@
+https://github.com/simobote0355/randomquotes
